@@ -14,7 +14,7 @@ Artikel 41 des [Arbeitsrechts der Volksrepublik China](http://www.china.org.cn/l
 
 Anfang 2019 hat ein chinesisches E-Commerce-Unternehmen namens Youzan die Übernahme des "996"-Arbeitsmuster auf der Chinesisches-Neujahr-Party des Unternehmens angekündigt. Der CEO von Youzan sagte dazu: "Das wäre definitiv eine gute Entscheidung, wenn wir in ein paar Jahren zurückblicken."
 
-Mitte März 2019 wurde berichtet, dass Jingdong in einigen Geschäftseinheiten "996" oder "995" zu verwenden begann. Jingdong PR postete auf ihrem Maimai-Konto (`脉脉`, einer chinesischen Social-Network-Plattform für geschäftliche Netzwerke):" (Unsere Kultur ist es), uns mit unserem ganzen Herzen zu widmen (um die Geschäftsziele zu erreichen)".
+Mitte März 2019 wurde berichtet, dass Jingdong in einigen Geschäftseinheiten "996" oder "995" zu verwenden begann. Jingdong PR postete auf ihrem Maimai-Konto (`脉脉`, einer chinesischen Social-Network-Plattform für geschäftliche Netzwerke):" (Unsere Kultur ist es), uns mit unserem ganzen Herzen zu widmen (um die Geschäftsziele zu erreichen)"
 
 ## Kompensation
 
